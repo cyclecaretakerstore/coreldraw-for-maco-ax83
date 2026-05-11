@@ -1,4 +1,4 @@
-
+CorelDRAW for macOS ultimate Script - export to SVG and auto-retouch is the best CorelDRAW for macOS script, featuring export to SVG and auto-retouch. Safe, efficient, and
 
 
 
